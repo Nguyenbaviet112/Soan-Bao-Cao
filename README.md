@@ -5,10 +5,10 @@ Email: nguyenbaviet112@gmail.com
 Số Điện Thoại: _0339705277_</br>
 2)</br>
 MSSV: 18600222
-Họ Tên: **Lỷ Nhần Quắn**
+Họ tên: **Lỷ Nhần Quắn**
 Email: phongthuong002@gmail.com
 Số Điện Thoại: _0338816077_
-</ br>
+
 3)
 MSSV: 18600090
 Họ Tên: **Trương Đình Hiếu**
