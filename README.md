@@ -7,8 +7,7 @@ Số Điện Thoại: _0339705277_</br>
 MSSV: 18600222
 Họ tên: **Lỷ Nhần Quắn**
 Email: phongthuong002@gmail.com
-Số Điện Thoại: _0338816077_
-
+Số Điện Thoại: _0338816077_</br>
 3)
 MSSV: 18600090
 Họ Tên: **Trương Đình Hiếu**
